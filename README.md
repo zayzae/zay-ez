@@ -2,4 +2,5 @@
 <br><p align="center"> update ( 11 / 1 / 26 ) ;; Due to The Large Situation with Coal's "" friends "" and "The FictionKilled Family" , I do NOT associate with with either party til things clear up. **DO NOT BRING THIS DRAMA TO ME AS I AM NOT AFFILIATED WITH ANY SIDE OF IT.**
 <br><p align="center"> I am busy with my shitty mental health, my job / work, and just trying to NOT kill myself in the process. Ponytown has almost become a not safespace for us (me) anymore due to this. Whatever happened on Ponytown with Coal, with her Friends, "The FictionKilled Family" etc etc., again **DOES NOT INCLUDE ME. I WAS A BYSTANDER TO EVERYTHING AND IT WILL STAY THIS WAY.**
 
-<br><p align="center"> Favorite Sister in the world !!! ;; [ LINK ADDED SOON. ]
+<br><p align="center"> Favorite Sister in the Whole WIDE World !!! ;; [SISTER GINGER <3](https://github.com/sw33tsug4rcookie)
+<br><p align="center"> <img width="236" height="236" alt="tumblr_3b1a938c7e2fa583982353f76d76b21e_7a53ed62_1280" src="https://github.com/user-attachments/assets/0a3ff085-be9d-465d-802f-13b22af08d7f" />
