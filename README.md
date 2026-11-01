@@ -7,6 +7,8 @@
 
 <br><p align="center"> <img width="200" height="200" alt="tumblr_10b76dcfe8054c9d21eecebeacae3026_5f613a2e_2048" src="https://github.com/user-attachments/assets/3b31cc5d-b269-48f1-b5ea-e1c474f695ab" />
 
+<br><p align="center"> dni fruitcake (cosmo x sprout) (unless CLOSE / PARTY), dni cookieberry (ginger x sprout), dni dw fandom unless I do, or unless close / party.
+
 <br><p align="center"> *Favorite Sister [Ginger](https://github.com/sw33tsug4rcookie) in the Whole WIDE World!!!*
 <br><p align="center"> *HI [COSMO](https://github.com/CosmoThePastryy) HIII ILYVM <33 /VPLATONIC*
 
