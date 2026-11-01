@@ -4,4 +4,4 @@
 
 <br><p align="center"> **Favorite Sister in the Whole WIDE World !!!** ;;
 <br><p align="center"> [SISTER GINGER <3](https://github.com/sw33tsug4rcookie)
-<br><p align="center"> <img width="236" height="236" alt="tumblr_3b1a938c7e2fa583982353f76d76b21e_7a53ed62_1280" src="https://github.com/user-attachments/assets/0a3ff085-be9d-465d-802f-13b22af08d7f" />
+<br><p align="center"> <img width="136" height="136" alt="tumblr_3b1a938c7e2fa583982353f76d76b21e_7a53ed62_1280" src="https://github.com/user-attachments/assets/0a3ff085-be9d-465d-802f-13b22af08d7f" />
