@@ -7,7 +7,7 @@
 
 <br><p align="center"> <img width="200" height="200" alt="tumblr_10b76dcfe8054c9d21eecebeacae3026_5f613a2e_2048" src="https://github.com/user-attachments/assets/3b31cc5d-b269-48f1-b5ea-e1c474f695ab" />
 
-## <br><p align="center"> **Favorite Sister in the Whole WIDE World !!!** ;; [SISTER GINGER <3](https://github.com/sw33tsug4rcookie)
-## <br><p align="center"> 
+<br><p align="center"> *Favorite Sister in the Whole WIDE World !!!* ;; [GINGER ^_^](https://github.com/sw33tsug4rcookie)
+<br><p align="center"> *HI COSMO HIII ILYVM <33 /VPLATONIC* ;; [COSMO ^_^](https://github.com/CosmoThePastryy)
 
 <br><p align="center"> <img width="2048" height="171" alt="tumblr_69c414df0f3373f3d0809662098ce5e6_73f60aad_2048" src="https://github.com/user-attachments/assets/b1162455-4ef1-45ed-b828-badab0bea2ee" />
