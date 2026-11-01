@@ -1,5 +1,6 @@
 <br><p align="center"> ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FMrSeedly%2FMrSeedly&label=Volunteers%20!%20&labelColor=%238f1a1a&countColor=%23f47373&style=plastic&labelStyle=none)
-<br><p align="center"> update ( 11 / 1 / 26 ) ;; Due to The ever growing Situation with Coal's "" friends "" and "The FictionKilled Family" , I do NOT associate with with either party til things clear up. **DO NOT BRING THIS DRAMA TO ME AS I AM NOT AFFILIATED WITH ANY SIDE OF IT.**
+<br><p align="center"> update ( 11 / 1 / 26 ).
+<br><p align="center"> Due to The ever growing Situation with Coal's "" friends "" and "The FictionKilled Family" , I do NOT associate with with either party til things clear up. **DO NOT BRING THIS DRAMA TO ME AS I AM NOT AFFILIATED WITH ANY SIDE OF IT.**
 <br><p align="center"> I am busy with my shitty mental health, my job / work, and just trying to NOT kill myself in the process. Ponytown has almost become a not safespace for us (me) anymore due to this. Whatever happened on Ponytown with Coal, with her Friends, "The FictionKilled Family" etc etc., again **DOES NOT INCLUDE ME. I WAS A BYSTANDER TO EVERYTHING AND IT WILL STAY THIS WAY.**
 
 <br><p align="center"> **Favorite Sister in the Whole WIDE World !!!** ;;
